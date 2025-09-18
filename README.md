@@ -1,0 +1,1 @@
+# bandalgomim.github.io
